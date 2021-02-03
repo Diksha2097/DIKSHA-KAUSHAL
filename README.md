@@ -12,37 +12,37 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
  
   ## MY HOBBIES :fire:
   
-    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
+   >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
  
-    >I really like to dance :dancers:
+   >I really like to dance :dancers:
  
-    >Singing is also like another main in extra curicular :microphone:
+   >Singing is also like another main in extra curicular :microphone:
  
-    >I also like to try my hand in Photography :video_camera:
+   >I also like to try my hand in Photography :video_camera:
  
-    >Play writing is another field of interest ::
+   >Play writing is another field of interest ::
  
-    >I also like to explore new things especially the unusual activities :ghost:
+   >I also like to explore new things especially the unusual activities :ghost:
  
-    >and ofcourse binge watching ::
+   >and ofcourse binge watching ::
  
-    >cycling :bicyclist:
+   >cycling :bicyclist:
  
-    >also I am learning to drive thus again a benchmark in my routine :red_car: ::
+   >also I am learning to drive thus again a benchmark in my routine :red_car: ::
  
-    >Apart from all my hobbies I love to travel :mini_bus: , also to orate and anchor :microphone: and to learn new things :earth_asia:.
+   >Apart from all my hobbies I love to travel :mini_bus: , also to orate and anchor :microphone: and to learn new things :earth_asia:.
     
   ## TECHANICAL STATS :cd:
    
-    >I have tried my hand in 
+   >I have tried my hand in 
                  >- video editing :computer: ,
                  >-sound editing :notes: ,
                  >-sound mixing :microphone:,
                  >-photoshop :video_camera: .
     
-    >I know basics of java as i studied it in tenth standard a bit :book: .
+   >I know basics of java as i studied it in tenth standard a bit :book: .
     
-    >I am learning C language :computer: .
+   >I am learning C language :computer: .
     
    ## SOCIAL MEDIA PLATFORMS I AM IN :mobile:
    
