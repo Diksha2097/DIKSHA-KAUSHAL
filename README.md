@@ -1,10 +1,10 @@
-# HI THERE :STARS:
+# HI THERE :stars:
  
 >This is DIKSHA KAUSHAL :girl: . I am a first year student of mechanical enginerring at NIT Hamirpur.I am bascically from Nahan distt. Sirmaur Himachal Pradesh.
 
 >A student :bag: , An editor :video: , A travel lover :bus: , A kinda dancer :music: and singer :guitar: , A learner :student: , An explorer :hat: etc as life goes on.
 
-## ABOUT MY EDUCATION:book: :pen: 
+## ABOUT MY EDUCATION :book: :pen: 
 
 I have completed secondary education from Career Academy Sr. Sec. School Nahan and my matriculation from Carmel Convent Sr. Sec. School Nahan itself. :school:
 
@@ -12,33 +12,33 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
  
   ## MY HOBBIES :fire:
   
-    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing:laptop:
+    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
  
-    >I really like to dance :dancer:
+    >I really like to dance :dancers:
  
-    >Singing is also like another main in extra curicular :mic:
+    >Singing is also like another main in extra curicular :microphone:
  
-    >I also like to try my hand in Photography :camera:
+    >I also like to try my hand in Photography :video_camera:
  
-    >Play writing is another field of interest :ink:
+    >Play writing is another field of interest ::
  
     >I also like to explore new things especially the unusual activities :ghost:
  
-    >and ofcourse binge watching :television:
+    >and ofcourse binge watching ::
  
-    >cycling :cycle:
+    >cycling :bicyclist:
  
-    >also I am learning to drive thus again a benchmark in my routine:car: :scooter:
+    >also I am learning to drive thus again a benchmark in my routine :red_car: ::
  
-    >Apart from all my hobbies I love to travel:bus:, also to orate and anchor:mic: and to learn new things :earth:.
+    >Apart from all my hobbies I love to travel :mini_bus: , also to orate and anchor :microphone: and to learn new things :earth_asia:.
     
   ## TECHANICAL STATS :cd:
    
     >I have tried my hand in 
-                 >- video editing :laptop: ,
-                 >-sound editing :music: ,
-                 >-sound mixing :mic:,
-                 >-photoshop :camera: .
+                 >- video editing :computer: ,
+                 >-sound editing :notes: ,
+                 >-sound mixing :microphone:,
+                 >-photoshop :video_camera: .
     
     >I know basics of java as i studied it in tenth standard a bit :book: .
     
