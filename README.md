@@ -2,7 +2,7 @@
  
 >This is DIKSHA KAUSHAL :girl: . I am a first year student of mechanical enginerring at NIT Hamirpur.I am bascically from Nahan distt. Sirmaur Himachal Pradesh.
 
->A student :bag: , An editor :computer: , A travel lover :bus: , A kinda dancer :notes: and singer :guitar: , A learner :student: , An explorer :hat: etc as life goes on.
+>A student :bag: , An editor :computer: , A travel lover :bus: , A kinda dancer :notes: and singer :guitar: , A learner :student: , An explorer :top_hat: etc as life goes on.
 
 ## ABOUT MY EDUCATION :book: :pen: 
 
