@@ -12,7 +12,7 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
  
   ## MY HOBBIES :fire:
   
-    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :laptop:
+    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing:laptop:
  
     >I really like to dance :dancer:
  
