@@ -2,7 +2,7 @@
  
 >This is DIKSHA KAUSHAL :girl: . I am a first year student of mechanical enginerring at NIT Hamirpur.I am bascically from Nahan distt. Sirmaur Himachal Pradesh.
 
->A student :bag: , An editor :computer: , A travel lover :bus: , A kinda dancer :notes: and singer :guitar: , A learner :student: , An explorer :tophat: etc as life goes on.
+>A student :: , An editor :computer: , A travel lover :bus: , A kinda dancer :notes: and singer :guitar: , A learner :student: , An explorer :tophat: etc as life goes on.
 
 ## ABOUT MY EDUCATION :book: :pen: 
 
@@ -14,21 +14,21 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
   
    >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
  
-   >I really like to dance :dancers:
+   >I really like to dance :dancer:
  
    >Singing is also like another main in extra curicular :microphone:
  
    >I also like to try my hand in Photography :video_camera:
  
-   >Play writing is another field of interest ::
+   >Play writing is another field of interest :pen:
  
    >I also like to explore new things especially the unusual activities :ghost:
  
-   >and ofcourse binge watching ::
+   >and ofcourse binge watching :tv:
  
    >cycling :bicyclist:
  
-   >also I am learning to drive thus again a benchmark in my routine :red_car: ::
+   >also I am learning to drive thus again a benchmark in my routine :red_car: :bike:
  
    >Apart from all my hobbies I love to travel :mini_bus: , also to orate and anchor :microphone: and to learn new things :earth_asia:.
     
