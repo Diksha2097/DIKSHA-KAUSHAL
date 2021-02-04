@@ -50,7 +50,8 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
   
    >also I am aiming at joining Linkedln soon.
    
-   ## ACHIEVEMENTS
+# THIS IS ALL ABOUT ME BUT THERE IS STILL MORE TO KNOW
+   
    
    
    
