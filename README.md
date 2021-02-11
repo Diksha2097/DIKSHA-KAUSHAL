@@ -12,7 +12,7 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
  
   ## MY HOBBIES :fire:
   
-   >Basically i have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
+   >Basically I have started learning Editing in Lockdown, so yes I enjoy getting lost in my new skill of sound and video editing :computer:
  
    >I really like to dance :dancer:
  
@@ -32,7 +32,7 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
  
    >Apart from all my hobbies I love to travel :bus: , also to orate and anchor :microphone: and to learn new things :earth_asia:.
     
-  ## TECHANICAL STATS :cd:
+  ## TECHNICAL STATS :cd:
    
    >I have tried my hand in 
                  >- video editing :computer: ,
@@ -40,13 +40,13 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
                  >-sound mixing :microphone:,
                  >-photoshop :video_camera: .
     
-   >I know basics of java as i studied it in tenth standard a bit :book: .
+   >I know basics of java as I studied it in tenth standard a bit :book: .
     
    >I am learning C language :computer: .
     
-   ## SOCIAL MEDIA PLATFORMS I AM IN :iphone:
+   ## SOCIAL PLATFORMS I AM IN :iphone:
    
-   >I am on quite a few social media platforms to interact with the technical crowd and others through Instagram, Whatsapp, Telegram, Signal, Discord and Github indeed.
+   >I am on quite a few social  platforms to interact with the technical crowd and others through Instagram, Whatsapp, Telegram, Signal, Discord and Github indeed.
   
    >also I am aiming at joining Linkedln soon.
    
