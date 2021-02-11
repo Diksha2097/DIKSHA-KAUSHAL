@@ -8,7 +8,7 @@
 
 I have completed secondary education from Career Academy Sr. Sec. School Nahan and my matriculation from Carmel Convent Sr. Sec. School Nahan itself. :school:
 
-# PEEPING MORE INSIDE MY LIFE :butterfly:
+## PEEPING MORE INSIDE MY LIFE :butterfly:
  
   ## MY HOBBIES :fire:
   
@@ -50,7 +50,7 @@ I have completed secondary education from Career Academy Sr. Sec. School Nahan a
   
    >also I am aiming at joining Linkedln soon.
    
-# THIS IS ALL ABOUT ME BUT THERE IS STILL MORE TO KNOW
+## THIS IS ALL ABOUT ME BUT THERE IS STILL MORE TO KNOW
    
    
    
